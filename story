@@ -1,0 +1,3 @@
+Once upon a time a young man named Aladdin lived in the kingdom of Agrabah. He was an orphan and a thief, a wanted criminal.
+Princess Jasmine lived in the palace and she disguised herself as a pauper to move about the city of Agrabah. Here she met Aladdin and he fell in love with her. But he knew she was beyond his reach.
+Jafar was the Sultan's Vizier and he yearned to replace him. He knew of a mysterious cave with a magic lamp with a Genie trapped within, and he tricked Aladdin into getting the lamp for him. Little did he know that Aladdin would make a friend out of the Genie and escape, then make a wish to become a prince to win Jasmine's heart...
