@@ -7,4 +7,4 @@ Jasmine found out that Aladdin was never a prince after all. Her father, the Sul
 Aladdin realised Jafar's lust for power was making him crazy, so he called Jafar a coward for using the Genie's powers to increase his own, and a weak person at the service of the Genie.
 Angered, Jafar wished to become an all-powerful genie. The Genie complied, and trapped him inside a lamp and threw him into the mysterious cave. 
 Then Aladdin made a wish to free Genie, and Sultan accepted him as a suitor for Jasmine if she liked him well enough. AND THEY ALL LIVED HAPPILY EVER AFTER.
-Except Jafar. He was very upset.
+Except Jafar. He was very upset. Not that anyone cares.
